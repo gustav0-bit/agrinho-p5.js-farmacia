@@ -1,0 +1,1 @@
+no meu projeto quando você apertar no botão 'enter' um boneco que esta na área rural vai chegar na farmácia que esta bem perto dele, espero que vocês entedem o tanto que demora a pessoa da área rural para chegar na farmácia, isso ia ajudar tanto essas pessoas
